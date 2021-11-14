@@ -1,6 +1,4 @@
 ### Hi there 👋
 
-My name is Mai Quang (takao)
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
+My name is Mai Quang
 - 📫 How to reach me: quangmai249@gmail.com
